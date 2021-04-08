@@ -5,7 +5,6 @@
 
 GAN WEI CAI (269979)
 
-![photo_2020-05-13_01-08-09](https://user-images.githubusercontent.com/60889205/82022179-cae24300-96be-11ea-80ab-a57e9b07f666.jpg)
 
 
 2. Other related info (if any)
